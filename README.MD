@@ -1,0 +1,5 @@
+Labai gera programa
+
+..
+.
+.
